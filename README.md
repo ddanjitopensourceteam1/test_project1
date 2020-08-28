@@ -1,4 +1,4 @@
-안녕하세요 윤도균입니다
+dokyoon
 YoungRok Choi
 leekyungme
 Sung-Sik Cho
